@@ -32,7 +32,7 @@ To generate **clear, actionable insights** that support **data-driven decision-m
 - **Mariam Taha** – [LinkedIn](https://www.linkedin.com/in/mariiamtaha/)  
 - **Shahd Mohammed** – [LinkedIn](https://www.linkedin.com/in/shahd-m-kordy-847633385?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)  
 - **Hazem Mustafa Elgohr** – [LinkedIn](www.linkedin.com/in/hazem-elgohr)
-- **Yasmin Omar** – [LinkedIn]()
+- **Yasmin Omar** – [LinkedIn](https://www.linkedin.com/in/yasmin-omar-2a9864246/)
 - **Shrouk Abdelwence** – [LinkedIn]()  
 - **Kareem Shaaban** – [LinkedIn](https://www.linkedin.com/in/kareem-shaaban-)  
 ---
